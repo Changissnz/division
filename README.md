@@ -1,4 +1,9 @@
-# division
+# division  
+
+Before there is ever division with the external, naturally... there must have been division of the internal.  
+He went to school to become a businessman. The conditions did not place him. So he served his country instead.  
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- 
 
 ![a05a39c1-e27c-4079-b0bb-7a804df94c03](https://github.com/user-attachments/assets/f29b33ee-b7dd-4ef1-bafe-53c80b401b6e)
 

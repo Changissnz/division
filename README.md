@@ -12,3 +12,10 @@ https://encyclopedia.ushmm.org/content/en/article/heinrich-himmler-key-dates
 
 SOURCE: 
 https://ancestralfindings.com/the-amazing-story-of-horace-greasley/ 
+
+----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+![himmler](https://github.com/user-attachments/assets/1ea7063b-f86b-4a1d-b370-87a58983fcf6)
+
+SOURCE:  
+https://lh4.googleusercontent.com/-TSkqHdkoXlk/Tg2D8gAsLnI/AAAAAAAAMEY/J48axczZEjQ/s720/himmler.jpg
